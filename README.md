@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">✨ Started Coding: 19.03.2018<br><br>🐇 Discord: kubuss++#3454<br>☁️ Member: DC.EdCode.PL | BlueTsuki.PL</p>
+<p align="center">✨ Started Coding: 19.03.2018<br><br>🐇 Discord: kubuss++#3454<br>☁️ Member: Dc.Edcode.PL | BlueTsuki.PL</p>
 
 ###
 
