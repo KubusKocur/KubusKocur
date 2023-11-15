@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">✨ Started Coding: 19.03.2018<br><br>🐇 Discord: kubusswow#2585<br></p>
+<p align="center">✨ Started Coding: 19.03.2018<br><br>🐇 Discord: kubuss1997<br></p>
 
 ###
 
